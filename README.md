@@ -1,8 +1,9 @@
 ### 😉 HI, I'm Park. 
-  A software engineer with 3+ years of experience in 
+  A software engineer with 5+ years of experience in 
   application design and development
   with a demonstrated history of working in 
-  the financial services industry and softwarehouse companies. 
-  I’m fast learning and working hard, active and enthusiastic and Able to work under pressure and flexible time 
+  the Financial Services Industry, Assurance industry, Software House companies, and IT service and consulting public companies. 
+  I am a fast learner, highly motivated, and adaptable, with the ability to work efficiently under pressure and manage flexible schedules.
+  My enthusiasm for technology drives my commitment to delivering innovative and impactful solutions.
   
 
